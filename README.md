@@ -1,1 +1,1 @@
-# spirit-Island-compendium
+# spirit-island-compendium
